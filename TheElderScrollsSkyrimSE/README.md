@@ -1,0 +1,1 @@
+Ces fichiers sont à copier dans le répertoire : Documents\My Games\Skyrim Special Edition
